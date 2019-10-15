@@ -6,3 +6,4 @@ There was nothing anybody could do.
 It isn't fair.  
 There's no reason, and if we start asking why, we'll go crazy.
 
+Sam参加妻子的葬礼，对儿子Jonah描述死亡。
